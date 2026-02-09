@@ -7,8 +7,6 @@ nice to meet you!
 New Msg !
 
 
-Hi there...
-
 
 
 
